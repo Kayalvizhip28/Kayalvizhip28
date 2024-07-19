@@ -1,4 +1,4 @@
-👋 Hi, I’m @Kayalvizhip28
+👋 Hi, I’m @kayalvizhipalanivel
 
 👀 I’m interested in Front-End Development
 
